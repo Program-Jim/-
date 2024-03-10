@@ -1,3 +1,14 @@
 # 钱睿轩
 
-## Nigger
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
+## 你是 NiNiggerNiNiNiNiggerNiNi
